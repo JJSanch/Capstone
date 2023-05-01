@@ -1,1 +1,1 @@
-https://www.figma.com/files/project/90923064/Team-project?fuid=999696383878369979
+https://www.figma.com/team_invite/redeem/8eE06QEXU3uMN9mPG1rjK6
