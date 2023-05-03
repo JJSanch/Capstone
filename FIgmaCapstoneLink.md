@@ -1,1 +1,1 @@
-https://www.figma.com/team_invite/redeem/8eE06QEXU3uMN9mPG1rjK6
+https://www.figma.com/file/KoG8NUtcRK6W4o1IngBccZ/SVB-Collapse?node-id=2%3A328&t=KrfyArKdXXsZ7jqE-1
